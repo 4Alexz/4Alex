@@ -1,6 +1,5 @@
 wees# 4Alex
-gfgrtetwrdsadad
-ыыффсssf
+gfgrtetwrdsada
 sasfgfgfsf
 zxccz
 dsfsgsgФЫЫыыф
