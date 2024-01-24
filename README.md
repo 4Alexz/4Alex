@@ -5,9 +5,7 @@ zxccz
 dsfsgsgФЫЫыыф
 dsyuyuadas
 hfhthtgfhfdgh
-hgfhgfhfgggdfgdfgd
-wdwdawd
-bjghjfjdthytry
+hgfhgfh
 gfgfgfdg
 hghhxfxfgzgz
 jyjuturdtyrs
