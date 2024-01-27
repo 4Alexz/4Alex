@@ -6,7 +6,4 @@ dsfsgsgФЫЫыыф
 dsyuyuadas
 hfhthtgfhfdgh
 hgfhgfh
-gfgfgfdg
-hghhxfxfgzgz
-jyjuturdtyrs
-hhjyutudd
+gfgfgf
