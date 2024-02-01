@@ -4,7 +4,4 @@ sasfgfgfsf
 zxccz
 dsfsgsgФЫЫыыф
 dsyuyuad
-ddgrsgsrg
-dfgzgz
-dsdsdadaXadxAD
-ddddddedccd
+ddgrsg
