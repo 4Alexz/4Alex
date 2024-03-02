@@ -4,11 +4,4 @@ ddgrsg
 dfdsADd
 hghhhdgdrg
 fjtyjjjfhfh
-ghfsDSadtsdgdfgfd
-dgdzgsdFdsf
-SDAcvxvxv
-ffghgddaDggs
-jghcjghfh
-fyfgdSFS
-ggjghjggkg
-hkgjgjgkjgjg
+ghfsD
